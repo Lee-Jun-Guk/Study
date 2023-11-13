@@ -6,8 +6,6 @@
 ## <center>🌞MBTI🌞</center>
 <center>INFP</center>  
 
-## <center>🌞BLOG ADDRESS🌞</center>
-<center>https://velog.io/@ell0404</center>
 
 ## <center>🌞자기소개🌞</center>
 안녕하십니까👏  
